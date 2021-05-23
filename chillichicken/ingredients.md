@@ -1,0 +1,1 @@
+bowl,boneless chicken,pepper powser,cornflour,eggwhite,little water,1.5tbsp oil,onions,chilli,sauce
